@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SIMRANVERMA10
 - 👀 I’m interested in goggling
 - 🌱 I’m currently learning shit
-- 💞️ I’m looking to collaborate on NASA
+- 💞️ I’m looking to collaborate with NASA
 - 📫 How to reach me: with pure heart
 - 😄 Pronouns: candy
 - ⚡ Fun fact: m dead
